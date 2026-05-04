@@ -1,2 +1,2 @@
-command link renamed
+you language scriplts you rules
 
