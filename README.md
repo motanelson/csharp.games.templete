@@ -1,2 +1,2 @@
-you language scriplts you rules
+new basic  language scriplts
 
